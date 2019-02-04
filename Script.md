@@ -21,7 +21,10 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
+As he crossed to the other side of the door, he was struck over the head by the Zookeeper, Braus.
 George met the Unicorn King who granted him magic powers, but was still no match for the mighty zookeeper, Braus
+
+George then met the Unicorn King who granted him magic powers.
 The end.
 
 ## Cast
